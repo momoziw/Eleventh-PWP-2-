@@ -129,3 +129,12 @@ xing ❤️ 秋千；肚兜；逆行🐍；颜🐍（描述太隐晦了自己�
 
 虽然只有梗，却是真实的灵感源泉ww
 
+正好看到，补充一下4w7+tag的pwp：
+
+29.[【藕饼】《三丈红绫》上（很野，小心晕车）](http://haishinageshuaibi.lofter.com/post/30b83928_1c6efe1d1) 作者：[风一顿](http://haishinageshuaibi.lofter.com/)
+
+这篇开得真猛，是纯车，放置play，混天绫扮演了不可替代的角色XD
+
+30.[【藕饼】结合热](http://zuiluohuangquan.lofter.com/post/1f0d92dd_1c6ee41fe) 作者：[醉落黄泉](http://zuiluohuangquan.lofter.com/)
+
+哨向设定的向哨车，神交/捆绑/触手play√，暴躁桀骜向导哪吒x清冷美人哨兵敖丙
